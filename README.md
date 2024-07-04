@@ -7,3 +7,4 @@ cinta de papel.
 
 
 
+![image](https://github.com/ramii-lucero/ramii-lucero/assets/174748221/f9ddf897-4af5-4dac-a40e-86d6a82f2360)
